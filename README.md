@@ -32,6 +32,9 @@ This movie has been one of my favorites *Memento* reason being that its story is
 I recommend *Memento* to people who enjoy mystery movies and stories that make them think. It is worth watching because the unusual storytelling encourages viewers to pay attention and form their own understanding of the events.
 
 
+> “We all need mirrors to remind ourselves who we are.”
+
+
 ## E. Additional Information
 
 For more information about the movie, visit the [British Film Institute's Memento page](https://www.bfi.org.uk/film/6e9da010-7145-59ea-98f9-3c6fcb142b1f/memento).
